@@ -51,4 +51,3 @@ Feel free to reach out on any of these:
 </p>
 
 
-⭐️ From [Anna Rose](https://github.com/your-github-username)
